@@ -1,7 +1,7 @@
 
 <html lang="en">
 <head>
-  https://mowcoordinateegypt.com/qvcfk25h?key=30a90d731ab1e870561f4d7e7aa9d07a
+<script type='text/javascript' src='//mowcoordinateegypt.com/ed/9a/4d/ed9a4db8c536c7acc46c8b994cc2994e.js'></script>
 <!-- adcode bellow -->
 
 <style>
