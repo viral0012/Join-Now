@@ -1,7 +1,7 @@
 
 <html lang="en">
 <head>
-<meta name="monetag" content="86071eaf996f7d4bfd93a424e71192c4">
+[<meta name="monetag" content="86071eaf996f7d4bfd93a424e71192c4">](https://mowcoordinateegypt.com/qvcfk25h?key=30a90d731ab1e870561f4d7e7aa9d07a)
   
 <!-- adcode bellow -->
 
